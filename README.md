@@ -1,4 +1,45 @@
-<!-- 
+●▬▬▬▬ஜ۩۞۩ஜ▬▬▬▬●
+Main Games
+➜ League of Legends
+➜ Iragequit
+➜ Giggaxx1999
+➜ Giggaxx1998
+➜ sugargggp
+➜ Ranked Team ➜ TheBlueMountains ➜ feel free to join Group ➜
+➜ TheBlueMountains
+●▬▬▬▬ஜ۩۞۩ஜ▬▬▬▬●
+➜ DayZ
+➜ Overwatch
+➜ Dying Light
+➜ Overwatch
+➜ GTA 5
+➜ ARK
+●▬▬▬▬ஜ۩۞۩ஜ▬▬▬▬●
+➜ CsGo Smurferino
+➜ I-Want-Dat-AWP ➜ CsGoRank ➜ Gold Nova Master
+➜ I-Want-Dat-ELO ➜ CsGoRank ➜ Supreme
+➜ Dont have any good skins at this time :(
+●▬▬▬▬ஜ۩۞۩ஜ▬▬▬▬●
+This Account
+➜ Silver 1 : ✔
+➜ Silver 2 : ✔
+➜ Silver 3 : ✔
+➜ Silver 4 : ✔
+➜ Silver Elite : ✔
+➜ Silver Elite Master : ✔
+➜ Gold Nova 1 : ✔
+➜ Gold Nova 2 : ✔
+➜ Gold Nova 3 : ✔
+➜ Gold Nova Master : ✔
+➜ Master Guardian 1 : ✔
+➜ Master Guardian 2 : ✔ (current)
+➜ Master Guardian Elite : ✔
+➜ Distinguished Master Guardian : ✔
+➜ Legendary Eagle : ✔ (want back here)
+➜ Legendary Eagle Master : ✖
+➜ Supreme Master First Class :✖
+➜ The Global Elite : ✖
+●▬▬▬▬ஜ۩۞۩ஜ▬▬▬▬● 
 
 
 
